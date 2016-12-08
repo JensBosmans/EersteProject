@@ -1,1 +1,1 @@
-laurens is een vieze faggot
+laurens is vies gay
